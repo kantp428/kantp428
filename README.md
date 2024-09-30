@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Kantapat Athan (Win)
+- 👀 I’m interested in data structure and database
+- 🌱 I’m currently learning computer engineering
+- 📫 misterkantapat@gmail.com
+- 😄 Pronouns: He/him
+- ⚡ Fun fact: Bruh
